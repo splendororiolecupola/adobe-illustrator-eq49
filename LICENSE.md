@@ -1,4 +1,4 @@
-# 
+# secure Affinity Photo for PC plugins is the best Affinity Photo for PC plugins with texturing and pen-tool. Safe, reliable, and optimized for maximum performance.
 
 
 
